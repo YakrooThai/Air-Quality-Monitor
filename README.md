@@ -19,3 +19,6 @@ https://www.youtube.com/shorts/KLk3ms-0OHI
 ![Taqi1](https://github.com/YakrooThai/Air-Quality-Monitor/assets/56666070/e4b70655-a3b9-48de-ba62-2d112c2684e3)
 
 ![Taqi2](https://github.com/YakrooThai/Air-Quality-Monitor/assets/56666070/8de6ad2f-195c-4c0b-a26f-4116cf0cda17)
+
+
+![Aqim2](https://github.com/YakrooThai/Air-Quality-Monitor/assets/56666070/ca4804ef-f5ef-4a4b-90d4-47a0f486114c)
