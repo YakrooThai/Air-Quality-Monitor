@@ -22,3 +22,7 @@ https://www.youtube.com/shorts/KLk3ms-0OHI
 
 
 ![Aqim2](https://github.com/YakrooThai/Air-Quality-Monitor/assets/56666070/ca4804ef-f5ef-4a4b-90d4-47a0f486114c)
+
+![384543783_823382563126517_2261597510903511788_n](https://github.com/YakrooThai/Air-Quality-Monitor/assets/56666070/8589ec75-3d36-49db-9eed-9cf8a4bc2ac8)
+
+![386861213_659150106332750_3123767214334959985_n](https://github.com/YakrooThai/Air-Quality-Monitor/assets/56666070/6b56df5f-9cf2-4ed7-b93d-e8d277f7df6b)
